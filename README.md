@@ -1,7 +1,7 @@
 <p align="center">
-👇 ME AND WHO AND WHO 😭💦💦 👇
+<a href="https://rentry.co/breastfeeding" target="_blank">rentry</a> | <a href="https://6fu.atabook.org/" target="_blank">atabook</a>
 <p align="center">
-<img src="https://file.garden/aKF9NNoKkQpWXJI7/Adobe%20Express%20-%20file.png" width="300" height="300" />
+<img src="https://file.garden/aKF9NNoKkQpWXJI7/Untitled2_20251021235405.png" width="400" height="150" />
 <p align="center">
 <a href="https://rentry.co/breastfeeding" target="_blank">rentry</a> | <a href="https://6fu.atabook.org/" target="_blank">atabook</a>
 
