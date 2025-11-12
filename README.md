@@ -1,5 +1,5 @@
 <p align="center">
-lemme nuh in yo buh ?
+⬇️ HELP ME IN MY JOURNEY 2 GET UNBLOCKED BY 50% OF PONYTOWNS PLAYERBASE ⬇️
 <p align="center">
 <img src="https://file.garden/aKF9NNoKkQpWXJI7/Untitled2_20251021235405.png" width="400" height="150" />
 <p align="center">
